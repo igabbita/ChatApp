@@ -42,5 +42,5 @@ These limitations will be taken care of.
 *Please contact me on any kind of concerns/questions*
 
 **By,** 
-### Tejas Tovinkere Pattabhi 
-**Email: tejas.pattabhi@gmail.com**
+### Iswarya S Gabbita 
+**Email: igabbita@gmail.com**
